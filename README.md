@@ -1,1 +1,2 @@
-# ATypicalHororGaem
+# A Typical Horor Gaem
+##THIS IS BRAINROT COLLECTIVE
